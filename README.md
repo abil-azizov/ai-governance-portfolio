@@ -1,6 +1,6 @@
 # AI Governance & Risk Management Portfolio
 **Abil Azizov** | Product Compliance, Trust & Safety & AI Governance  
-[LinkedIn](https://linkedin.com) • [Email](mailto:abil.azizov@gmail.com)
+[LinkedIn](linkedin.com/in/abil-azizov) • [Email](mailto:abil.azizov@gmail.com)
 
 > *Disclaimer: Fictionalised case study based on generalised professional experience. Contains no confidential information of any current or former employer.*
 
